@@ -1,1 +1,1 @@
-Second day program
+Doing hard things
